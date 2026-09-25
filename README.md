@@ -2,7 +2,7 @@
 
 <br>A professional automation tool developed to automatically manage, optimize, and engage with sponsored links, Google Ads advertisements, and destination URLs in Google search results.</br>
 
-<br><h1>https://wa.me/+905334185114</h1></br>
+<br><h1>https://wa.me/+447537179612</h1></br>
 
 <br><h1>📋 Table of Contents</h1></br>
 
@@ -52,4 +52,4 @@
 <br><img width="898" height="600" alt="ads-gmail-session-clicker-bot" src="https://github.com/user-attachments/assets/a459a6aa-cc1b-4171-bb10-1aa5d97171e3" /></br>
 <br><img width="901" height="599" alt="ads-clicker-bot" src="https://github.com/user-attachments/assets/7c62e98c-9135-4921-98b8-5e52c2e70cd9" /></br>
 
-<br><h1>https://wa.me/+905334185114</h1></br>
+<br><h1>https://wa.me/+447537179612</h1></br>
